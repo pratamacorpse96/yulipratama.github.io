@@ -1,1 +1,0 @@
-# yulipratama.github.io
